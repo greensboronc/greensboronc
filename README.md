@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning ... http://greensboro-nc.com
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... https://twitter.com/greensboro_nc
+
 https://bit.ly/m/nc
 https://about.me/greensboro_nc
 https://bit.ly/link_trees
